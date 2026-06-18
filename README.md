@@ -8,4 +8,4 @@
 - quero aprender outros idiomas ⚖️
 -entre em contato comigo @kiara.nascimento@escola.pr.gov.br
 -insta:@nascx.z
-![https://media.tenor.com/FMd1JzJbyPgAAAAd/asufuturechamp-mitsuri.gif]
+![](https://media.tenor.com/FMd1JzJbyPgAAAAd/asufuturechamp-mitsuri.gif)
